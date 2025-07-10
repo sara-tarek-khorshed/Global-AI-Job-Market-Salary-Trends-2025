@@ -1,1 +1,1 @@
-# Global-AI-Job-Market-Salary-Trends-2025
+# Projects
